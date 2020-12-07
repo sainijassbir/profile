@@ -17,8 +17,8 @@
 
 # Idol: *Guru Nanak*
 
-# Talent: *Talentless*
+# Talent: *Architecture*
 
-# Food i lik: *Shahi Paneer*
+# Food i like: *Shahi Paneer*
 
 **Jai Jawan, Jai Kissan** 
